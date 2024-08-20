@@ -9,4 +9,6 @@ Meu nome é Yago Soares
 
 ### Entre em contato comigo, responderei assim que possível!
 
+00001122319307sp@al.educacao.sp.gov.br
+
 ![](https://media.tenor.com/KtxM1oKoKxcAAAAi/vtuber-chainavt.gif)
