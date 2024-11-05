@@ -6,6 +6,7 @@ Meu nome é Yago Soares
 - Nasci em 15 de outubro de 2008
 - Estou aprendendo programação
 - Estou estudando com o [Alura Start](https://www.alura.com.br)
+- Tenho um grande interesse por Inteliigência Artificial (IA)
 
 ### Entre em contato comigo, responderei assim que possível!
 
